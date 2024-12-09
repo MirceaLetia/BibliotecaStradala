@@ -1,0 +1,1 @@
+Biblioteca Stradala in localitatea Ogretin, Comuna Drajna, Judetul Prahova. Proiect Realizat de Letia Mircea Christian(24, Cod(HTML, CSS, Github Repository and Publishing, Constructie Casute)) & Neatu Luis(Carti).
